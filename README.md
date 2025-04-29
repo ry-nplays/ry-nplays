@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ry-nplays, or ryan
 - 🌱 I’m currently learning HTML
-- 📫 Reach me by email, ryan@ryanplays.xyz or discord, ryanp1ays
+- 📫 Reach me by email, ryan@ryxn.lol or discord, ryanp1ays
