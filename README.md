@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @ry-nplays, or ryan
-- 🌱 I’m currently learning HTML
+- 🌱 I’m know HTML, and learning CSS.
 - 📫 Reach me by email, ryan@ryxn.lol or discord, ryanp1ays
